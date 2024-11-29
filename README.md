@@ -1,4 +1,4 @@
-# kfc gift card 2024
+# kfc gift card
 
 Unlock Free Gift Cards with Just a Few Clicks!
 
