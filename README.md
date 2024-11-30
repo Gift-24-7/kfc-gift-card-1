@@ -1,6 +1,6 @@
 # kfc gift card
 
-Unlock Free Gift Cards with Just a Few Clicks!
+**Unlock Free Gift Cards with Just a Few Clicks!**
 
 **[🎁🎁Click Here to Claim Your Free Gift Card Now✔️🎁](https://service247.xyz/kfc/)**
 
